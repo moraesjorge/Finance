@@ -2,5 +2,8 @@
 
 Olá! Bem-vindo ao meu github :wave:
 
-- Investimento
-- Matemática Financeira
+- Investimentos;
+- Matemática Financeira;
+- Macroeconomia;
+- Indicadores de mercados;
+- E muitas outras _cositas más_...
