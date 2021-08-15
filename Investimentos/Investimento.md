@@ -8,8 +8,8 @@ Alguém falou aí "Investimento!!"?
 
 Para cada declaração acima, há um comentário que pode ser feito:
 
-1- Claro que investimento é para o Warren Buffett e seus amigos. Mas não é apenas para eles. É para todos!
+1- Claro que investimento é para o Warren Buffett e seus amigos. Mas não é apenas para eles. Assim como o sol, investir é para todos!
 
-2 - Okay. Estar gastando todo o seu dinheiro reflete uma situação presente e que deve ser mudada o quanto antes. Mudada para quê? Para poder investir, ora bolas!
+2 - Bem, estar gastando todo o seu dinheiro reflete a sua situação presente mas que deve ser mudada o quanto antes. Mudada para quê? Para poder investir, ora bolas!
 
 3 - Antes de investir seu dinheiro, é necessário investir tempo. Tempo para estudar esse idioma que os economistas são tão fluentes. Além do mais, ao estudar, você deve começar pelo verbo _to be_ dos investimentos e não lendo Shakespeare no original.
